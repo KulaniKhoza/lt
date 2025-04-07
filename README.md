@@ -1,1 +1,1 @@
-Kulani Khoza
+Kulani Tommy Khoza
